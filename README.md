@@ -9,4 +9,4 @@
 
 ![new bitmap imag222e](https://user-images.githubusercontent.com/41207912/43983654-aacd5722-9d1d-11e8-9272-dba99be5f44a.jpg)
 
-![new bitmap imag222e](https://user-images.githubusercontent.com/41207912/43983676-cbadda8e-9d1d-11e8-8c36-dd5d7dde88e9.jpg)
+
